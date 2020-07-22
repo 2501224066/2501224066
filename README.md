@@ -1,3 +1,1 @@
-![img](https://ss1.bdstatic.com/70cFvXSh_Q1YnxGkpoWK1HF6hhy/it/u=4056233903,573208956&fm=26&gp=0.jpg)  
-好巧哦，你也在网上冲浪 👋  
-What a coincidence. You're surfing the Internet, too  
+![img](http://b341.photo.store.qq.com/psb?/V141zP1Q26drdc/xupQSYQ0xl67vpx*k24ALopuFVReR*MMFU8THPxw0*U!/b/dFUBAAAAAAAA&bo=mAHKAQAAAAARB2I!&rf=viewer_4&t=5%E3%80%81)  
